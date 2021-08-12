@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Cheng Jiaxiang.
 - 👀 I’m interested in running and playing soccer.
-- 🌱 I’m currently learning something i like.
+- 🌱 I’m currently learning something I like.
+- Now, I am trying to enter a filed that I like. And I also have enough passions to overcome difficulties.
 
 
 <!---
